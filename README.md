@@ -1,1 +1,2 @@
 # aventura-
+Soy el primo de kanye west, y les pido porfavor que se dejen de burlar de mi primo. Lo que hizo fue porque simplemente yo le dije que me habia enfermado por comer arroz con leche, y cuando fui al doctor me sacaron el arroz, asi que le pedi de favor que el me sacara la leche. Y claro, esto se repitio muchas veces, pero es que a mi me gusta mucho comer arroz con leche y se me hace injusto que ustedes le digan que seguro le gusta el dedo sin uña.
